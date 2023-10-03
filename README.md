@@ -1,5 +1,4 @@
-antl3r
+zero interests
+zero prospects
 
-1/4 of a group you don't know
-
-~--(8:>
+o O o O, >-|-|-O>
